@@ -1,1 +1,0 @@
-Day2 [task](https://docs.qq.com/doc/DUGRwWXNOVEpyaVpG)
